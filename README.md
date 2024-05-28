@@ -1,0 +1,1 @@
+# GinaCorneliabrTarigan2308541019_Persamaan_Garis.ipynb
